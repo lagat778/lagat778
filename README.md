@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @lagat778
 - 👀 I’m interested in ..hacking.
 - 🌱 I’m currently learning .programing.
-- 💞️ I’m looking to collaborate on .samsung..
+- 💞️ Just fucked up 2 web down
 - 📫 How to reach me kibetsam778@gmail.com 
 
 <!---
